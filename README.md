@@ -1,1 +1,1 @@
-# The-Smoothie-Project
+# Copright Smoothie Ink.©
